@@ -1,4 +1,4 @@
-### Za'atar-Spiced Fennel & Farro Salad with English Peas, Pea Tips & Pomegranate Molasses
+### Honey Roasted Chicken
 
 * **Serves:** 6-8
 * **Cooking Time:** ?
