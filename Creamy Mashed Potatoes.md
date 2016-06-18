@@ -9,7 +9,7 @@
  
 -----
 *Ingredients:*
-* 4 lbs Tukon Gold potatoes: peeled
+* 4 lbs Yukon Gold potatoes: peeled
 
 *Steps:*
 * cut potatoes into 3/4 in slices
