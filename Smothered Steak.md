@@ -32,7 +32,7 @@
 * *onion mixture*
 * 2 tbsp corn starch
 * 3 garlic cloves: minced
-* 1 tsp drief thyme
+* 1 tsp dried thyme
 * 1 tsp pepper
 
 *Steps:*
