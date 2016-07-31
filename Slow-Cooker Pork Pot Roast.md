@@ -54,7 +54,7 @@
 * 2 tsp white wine vinegar
 
 *Steps:*
-* cook until pork is tender (9-10h low, 4-5h high)
+* cook until pork is tender (9-10h low, 4-5h high, 1-2 hours pressure cooker [high, natural release])
 * rest roasts, tented with foil (10m)
 * cut into 1/2 in. slices
 * add to platter with carrots
