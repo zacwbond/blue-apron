@@ -9,7 +9,7 @@
 -----
 *Ingredients:*
 * 9 whole graham crackers
-* 3 tbsp shugar
+* 3 tbsp sugar
 * 1/8 tsp salt
 * 5 tbsp unsalted butter: melted
 
