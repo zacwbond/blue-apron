@@ -81,7 +81,7 @@
 * *cream cheese curd*
 
 *Steps:*
-* whip 3 egg whites on medium-low until foamu
+* whip 3 egg whites on medium-low until foamy
 * add sugar slowly while mixing on medium-high
 * continue mixing until whites are stiff and gloddy (4m)
 * add curd and cream cheese and whip on medium until few streaks remain (30s)
