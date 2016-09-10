@@ -23,7 +23,7 @@
 * 1/4 C tarragon leaves: lightly packed
 * 1 tbsp fresh thyme leaves
 * 6 medium scallions: green parts, sliced thin
-* 1 medium farlic clove: minced
+* 1 medium garlic clove: minced
 * 6 tbsp unsalted butter: softened
 
 
@@ -67,6 +67,6 @@
 * heat 2 tsp chicken fat to skillet ove medium heat
 * create a roux (~60s)
 * deglaze with broth, then reduce to 1 C (~5-7m)
-* add any juices from carving board and simmer (~30m(
+* add any juices from carving board and simmer (~30s)
 * whisk in cold herb butter and lemon juice
 * season to taste and serve with chicken
