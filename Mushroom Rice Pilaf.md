@@ -14,7 +14,7 @@
 * 1 1/2 C long grain white rice
 * 2 garlic cloves, minced
 * 1 tsp minced fresh thyme
-* 1 tsp poultry seasoning
+* 1 tsp poultry seasoning (ex: herbes de provence)
 * 2 1/4 C chicken broth
 * 2 tbsp chopped fresh parsley
 
