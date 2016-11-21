@@ -3,20 +3,8 @@
 * **Serves:** ?
 * **Cooking Time:** ?
 * **Description**: 
- For a pumpkin pie recipe that produced a pie with a crisp crust and a soft, custard-type filling, we began baking our crusts almost completely before filling them; that way we knew they would start out crisp. Next, we made sure that both shell and filling for our pumpkin pie recipe were hot when we assembled the pie, so the custard could begin to firm up almost immediately rather than soaking into the pastry. Finally, we baked the pie quickly, in the bottom of the oven, exposing the bottom of the crust to the most intense heat. We avoided curdling by taking the pie out of the oven immediately once the center thickened to the point where it no longer sloshed but instead wiggled like gelatin when the pan was gently shaken.
+ Too many pumpkin pie recipes result in a grainy custard in a soggy crust. For our pumpkin pie recipe, we avoided this outcome by drying out the pumpkin puree (and adding roasted yams for complex flavor) on the stovetop before whisking in dairy and eggs. The hot filling let the creamy custard firm up quickly in the oven, preventing it from soaking into the crust.
  
-2cups plain pumpkin puree (16 ounces), canned or fresh
-1cup packed dark brown sugar
-2teaspoons ground ginger
-1teaspoon fresh grated nutmeg
-2teaspoons ground cinnamon
-¼teaspoon ground cloves
-½teaspoon table salt
-⅔cup heavy cream
-⅔cup milk
-4 large eggs
-
-
  
 -----
 *Ingredients:*
