@@ -11,6 +11,7 @@
     * 4 peeled and cut into 1/4 in. slices, in mixing bowl
 * 1 1/2 C sugar    
     * 1/2 C sugar in mixing bowl
+    * 1 C sugar, in a large saucepan
 * 8 egg yolks, in mixing bowl
 * 6 tbsp corn starch, in mixing bowl
 * 6 C half and half, in a large saucepan
