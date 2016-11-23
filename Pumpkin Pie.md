@@ -13,7 +13,7 @@
 * 1 C whole milk, in a mixing bowl
 * 3 eggs, in a mixing bowl
 * 2 egg yolks, in a mixing bowl
-* 1 tsp vanilla, in a mixxing bowl
+* 1 tsp vanilla, in a mixing bowl
 * 1 can pumpkin (15 oz.), in a saucepan
 * 1 C drained candied yams, in a saucepan
 * 3/4 C sugar, in a saucepan
