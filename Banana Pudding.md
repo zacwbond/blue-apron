@@ -1,4 +1,4 @@
-### Freeform Summer Fruit Tart
+### Banana Pudding
 
 * **Serves:** 12
 * **Cooking Time:** ?
