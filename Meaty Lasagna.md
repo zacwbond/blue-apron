@@ -57,7 +57,9 @@ Lasagna
 * repeat the layering process two more times
 * place the last 3 noodles on top and spread with remaining sauce
 * cover with remaining 1 1/4 C mozzarella and 1/4 C Parmesan
-* bake at oven to 375°F until cheese is spotty brown and sauce is bubbling (30m)
+* spray foil with cooking spray and cover lasagna
+* bake at oven to 375°F until sauce is bubbling (30m)
+* broil until cheese is spotty brown (4 m)
 
 
 
