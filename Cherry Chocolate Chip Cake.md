@@ -16,7 +16,7 @@ White Cake Batter:
  * 2 tsp. vanilla extract
 * in a stand mixer bowl:
  * 9 oz. (2 1/4 C) cake flour
- * 1 3/4 C (12 1.4 oz.) sugar
+ * 12 1.4 oz. (1 3/4 C) sugar
  * 4 tsp. baking powder
  * 1 tsp salt
 * separately:
