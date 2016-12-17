@@ -6,55 +6,58 @@
 Sauce
 -----
 *Ingredients:*
-* separately: 
- * 1 1/2 tbsp olive oil
- * 1 onion: chopped fine
+* together:
  * 6 cloves garlic: minced
  * 1/4 tsp red pepper flakes
+* together:
  * 1/2 lb. ground beef chuck (85%)
  * 1/2 lb. ground pork
  * 1 tsp salt
  * 1/2 tsp ground black pepper
- * 1/4 C heavy cream
+* together:
  * 28 oz. (1 can) tomato puree
  * 28 oz. (1 can) diced tomatoes
  * 1/4 C chopped fresh basil
-
+* separately: 
+ * 1 1/2 tbsp olive oil
+ * 1 onion: chopped fine 
+ * 1/4 C heavy cream
+ 
 *Steps:*
-* mix liquid ingredients in measuring cup
-* fit mixer with paddle and stir dry ingredients on low speed until combined (5 m)
-* add butter, 1 piece at a time
-* mix until pea-sized pieces remain (1 m)
-* add half of milk mixture
-* increase speed to medium high and beat until fluffy (1 m)
-* reduce speed to medium low and add remaining liquid
-* beat until incorporated (30s, may look curdled)
-* finish stirring by hand
+* soften the onions (2 m)
+* add garlic and pepper flakes and cook until fragrant (30 s)
+* increase heat to medium high
+* add meat mixture and cook until meat is not pink, but not browned (4 m)
+* add cream and simmer until only fat remains (4 m)
+* stir in tomato mixture and bring to simmer
+* reduce heat to low until flavors blend (3 m)
+* remove pot from heat
 
 Lasagna
 -----
-* separately: 
+* mixed together:
  * 1 3/4 C whole-milk ricotta
- * 1 1/4 C grated Parmesan cheese
+ * 1 C grated Parmesan cheese
  * 1/4 C chopped fresh basil
  * 2 large eggs: lightly beaten
  * 1/4 tsp salt
  * 1/4 tsp black pepper
+* separately: 
+ * *meat sauce*
+ * 1/4 C grated Parmesan cheese 
  * 5 C shredded whole milk mozzarella cheese
  * 12 (from 8-9 oz. package) no-boil lasagna noodles
 
 *Steps:*
-* drain and rinse the pie filling under water
-* press cherries between paper towles until very dry
-* chop cherries fine and discard all but 1/2 C
-* fold cherries into red batter
-* finish the cake (see recipe)
-* melt remaining chips and shortening
-* dip maraschino cherries into chocolate and place on parchment-lined plate
-* refrigerate until hardened (10m)
-* beat 5 drops of coloring into buttercream
-* spread 1/4 C of frosting on bottom layer
-* add the top layer and then frost the top and sides of the cake
-* decorate with whipped cream and cherries
+* spread 1/4 C sauce over bottem of 13x9 baking dish
+* place 3 noodles crosswise on top of sauce
+* evenly space 9 tbsp. of ricotta mixture over noodles
+* sprinkle evenly with 1 1/4 C mozzarella
+* spoon 1 1/2 C sauce over chease
+* repeat the layering process two more times
+* place the last 3 noodles on top and spread with remaining sauce
+* cover with remaining 1 1/4 C mozzarella and 1/4 C Parmesan
+* bake at oven to 375°F until cheese is spotty brown and sauce is bubbling (30m)
+
 
 
