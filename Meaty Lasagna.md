@@ -3,20 +3,22 @@
 * **Description**: 
  We wanted a lasagna recipe that would deliver a rich and meaty weeknight meal that we didn’t need to defrost before putting in the oven. To achieve this, we used no-boil noodles, which are precooked and dehydrated before packaging, so they freeze well and bake up tender but never mushy. And to ensure our meaty lasagna recipe held up to the punishing effects of the freezer, we bulked up the flavors by replacing some of the ground beef with ground pork and increasing the amount of crushed red pepper flakes and fresh basil.
 
-White Cake Batter:
+Sauce
 -----
 *Ingredients:*
-* in a 2 C measuring cup:
- * 1 C whole milk: at room temperature
- * 6 large egg whites: at room temperature
- * 2 tsp. vanilla extract
-* in a stand mixer bowl:
- * 9 oz. (2 1/4 C) cake flour
- * 12 1.4 oz. (1 3/4 C) sugar
- * 4 tsp. baking powder
+* separately: 
+ * 1 1/2 tbsp olive oil
+ * 1 onion: chopped fine
+ * 6 cloves garlic: minced
+ * 1/4 tsp red pepper flakes
+ * 1/2 lb. ground beef chuck (85%)
+ * 1/2 lb. ground pork
  * 1 tsp salt
-* separately:
- * 12 tbsp unsalted butter: softened but cool and cut into pieces
+ * 1/2 tsp ground black pepper
+ * 1/4 C heavy cream
+ * 28 oz. (1 can) tomato puree
+ * 28 oz. (1 can) diced tomatoes
+ * 1/4 C chopped fresh basil
 
 *Steps:*
 * mix liquid ingredients in measuring cup
@@ -29,51 +31,17 @@ White Cake Batter:
 * beat until incorporated (30s, may look curdled)
 * finish stirring by hand
 
-
-*To finish:*
-* oven at 350°F 
-* prepare two 9 in. pans lined with greased + floured parchment paper
-* divide batter into pans and smooth tops
-* bake until tops are light golden and cake is done (20-25 m)
-* roate pans halfway through baking
-* cool on wire rack (10 m) before removing cakes from pans
-* cool completely (2 h)
-
-Easy Vanilla Buttercream:
+Lasagna
 -----
-*Ingredients:*
-* in stand mixer:
- * 12 tbsp unsalted butter: softened but cool and cut into pieces
-* together:
-  * 10 oz. (2 1/2 C) confectioners' sugar
-  * 1/8 tbsp salt
-* together:
- * 2 tsp vanilla extract 
- * 2 tbsp heavy cream 
-
-*Steps:*
- * fit mixer with whisk and beat the butter at medium-high until smooth (20 s)
- * add sugar and salt and beat at medium-low until sugar is mostly moistoned (45s)
- * beat at medium until fully combined (15 s)
- * add vanilla and cream
- * beat at medium until incorporated (10s)
- * beat at medium high and beat until light and fluffy (4 m)
-
-Cake:
------
-*Ingredients:*
-* folded together:
- * *white cake batter*
- * 1/2 C mini chocolate chips 
- * red food coloring
-* in heat-proof bowl for double boiler:
- * 1 tbsp. vegetable shortening
- * 1 1/2 C mini chocolate chips
-* separately:
- * 21 oz. (1 can) cherry pie filling
- * 10 oz. (1 jar) maraschino cherries: drained, wiped dry, stems on
- * *3 C easy vanilla buttercream*
- * 1/2 C heavy cream, whipped
+* separately: 
+ * 1 3/4 C whole-milk ricotta
+ * 1 1/4 C grated Parmesan cheese
+ * 1/4 C chopped fresh basil
+ * 2 large eggs: lightly beaten
+ * 1/4 tsp salt
+ * 1/4 tsp black pepper
+ * 5 C shredded whole milk mozzarella cheese
+ * 12 (from 8-9 oz. package) no-boil lasagna noodles
 
 *Steps:*
 * drain and rinse the pie filling under water
