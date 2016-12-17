@@ -24,7 +24,7 @@ White Cake Batter:
 
 *Steps:*
 * mix liquid ingredients in measuring cup
-* fit mixer with paddle and stir dry ingredients on low speed until combined (5 m)
+* fit mixer with paddle and stir dry ingredients on low speed until combined (5 s)
 * add butter, 1 piece at a time
 * mix until pea-sized pieces remain (1 m)
 * add half of milk mixture
