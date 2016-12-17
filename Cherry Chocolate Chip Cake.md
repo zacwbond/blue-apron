@@ -47,7 +47,7 @@ Easy Vanilla Buttercream:
 -----
 *Ingredients:*
 * in stand mixer:
- * 12 tbsp unsalted butter: softened but cool and cut into pieces
+ * 20 tbsp unsalted butter: softened and cut into pieces
 * together:
   * 10 oz. (2 1/2 C) confectioners' sugar
   * 1/8 tbsp salt
