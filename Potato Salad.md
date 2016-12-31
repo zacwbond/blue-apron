@@ -21,6 +21,8 @@
   * 1 celery rib, minced
   * 2 tbsp distilled white vinegar
   * 1/2 tsp celery seeds
+  * 1/2 tsp salt
+  * 1/4 tsp pepper
 
 *Steps:*
 * cover potatoes with water by 1 in.
