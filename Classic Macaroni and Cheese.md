@@ -6,7 +6,6 @@
 
 The test kitchen’s favorite elbow macaroni is Barilla Elbows. Serve with hot sauce and/or celery salt.
 
-Sauce
 -----
 *Ingredients:*
 * in a food processor:
