@@ -1,4 +1,4 @@
-### Four Cheese Lasagna
+### Classic Macaroni and Cheese
 * **Serves:** 6-8
 * **Cooking Time:** ?
 * **Description**: 
