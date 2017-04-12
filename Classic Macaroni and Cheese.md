@@ -25,7 +25,7 @@ The test kitchen’s favorite elbow macaroni is Barilla Elbows. Serve with hot s
   * 8 oz sharp cheddar cheese: shredded (2 C)
 * separately:
   * 5 C whole milk
-  * 5 tbsp unsalted butter
+  * 5 tbsp unsalted butter
   
 *Steps:*
 * heat broiler and place oven rack at the middle position
