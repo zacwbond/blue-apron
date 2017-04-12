@@ -9,30 +9,30 @@ Sauce
 -----
 *Ingredients:*
 * combined in a bowl:
- * 6 oz. (1 1/2 C) Gruyère cheese: shredded
- * 1 oz. (1/2 C) Parmesan cheese: finely grated
+  * 6 oz. (1 1/2 C) Gruyère cheese: shredded
+  * 1 oz. (1/2 C) Parmesan cheese: finely grated
 * combined in a bowl:
- * 1 1/2 C part-skim ricotta cheese
- * 1 large egg: lightly beaten
- * 1/4 tsp ground black pepper
- * 2 tbsp minched fresh parsley  + 2 tsp
+  * 1 1/2 C part-skim ricotta cheese
+  * 1 large egg: lightly beaten
+  * 1/4 tsp ground black pepper
+  * 2 tbsp minched fresh parsley  + 2 tsp
 * together:
- * 1 medium shallot: minced (for 3 tbsp)
- * 1 medium clove garlic: minced (for 1 tsp)
+  * 1 medium shallot: minced (for 3 tbsp)
+  * 1 medium clove garlic: minced (for 1 tsp)
 * together: 
- * 2 1/2 C whole milk
- * 1 1/2 C low-sodium chicken broth
+  * 2 1/2 C whole milk
+  * 1 1/2 C low-sodium chicken broth
 * together:
- * 1/2 tsp table salt
- * 1 bay leaf
- * pinch cayenne pepper
+  * 1/2 tsp table salt
+  * 1 bay leaf
+  * pinch cayenne pepper
 * separately:
- * 3 tbsp unsalted butter
- * 1/3 C AP flour 
- * 15 no-boil lasagna noodles
- * 8 oz. (2 C) fontina cheese: shredded
- * 3 oz. (3/4 C) Gorgonzola cheese: finely crumbled
- * 1 oz. (1/2 C) Parmesan cheese: finely grated
+  * 3 tbsp unsalted butter
+  * 1/3 C AP flour 
+  * 15 no-boil lasagna noodles
+  * 8 oz. (2 C) fontina cheese: shredded
+  * 3 oz. (3/4 C) Gorgonzola cheese: finely crumbled
+  * 1 oz. (1/2 C) Parmesan cheese: finely grated
  
 *Steps:*
 * melt the butter in a medium saucepan until foaming
