@@ -7,12 +7,12 @@
 
 -----
 *Ingredients:*
+* in a large saucepan:
+  * 2 lbs frozen strawberries
 * bloomed together:
   * 2 tbsp water  
   * 2 tbsp lemon juice
   * 1 tbsp unflavored gelatin
-* in a large saucepan:
-  * 2 lbs frozen strawberries
 * together:
   * 1 C sugar
   * pinch salt
