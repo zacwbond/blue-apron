@@ -55,7 +55,7 @@
 
 *Ingredients:*
 * whisked together:
-  * 1 1/4 C AP flour
+  * 5.51 oz AP flour (1 1/4 C) 
   * 2 tbsp sugar
   * 1/4 tsp table salt
 * in a stand mixer:
