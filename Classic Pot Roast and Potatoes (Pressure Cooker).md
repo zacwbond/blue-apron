@@ -19,7 +19,7 @@ The typical 4-hour cooking time plus prep and rest makes pot roast an unlikely c
 
   
 *Steps:*
-* pat beef dry, tie around circumfrence, and season with salt and pepper.  
+* pat beef dry, tie around circumfrence, and season with salt and pepper
 * heat oil in pressure cooker and brown beef on all sides
 * add onion to fat and soften over med-high (5-7m)
 * stir in paste and mushrooms
