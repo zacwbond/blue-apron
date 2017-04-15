@@ -6,6 +6,8 @@
  In step 1, it is imperative that the cooked strawberry mixture measures 2 cups; any more and the filling will be loose. If your fresh berries aren’t fully ripe, you may want to add extra sugar to taste in step 2. Use your favorite pie dough or use our recipe. Chill the heavy cream in step 4 to help it whip more quickly.
 
 -----
+## Filling
+
 *Ingredients:*
 * in a large saucepan:
   * 2 lbs frozen strawberries
@@ -32,6 +34,8 @@
 * spread into pie shell and refrigerate until set (4h)
 
 -----
+## Topping
+
 *Ingredients:*
 * in a bowl:
   * 4 oz. cream cheese: softened
@@ -47,6 +51,8 @@
 
 
 -----
+## Crust (or use any 9-in. pie crust)
+
 *Ingredients:*
 * whisked together:
   * 1 1/4 C AP flour
