@@ -6,7 +6,7 @@
  In step 1, it is imperative that the cooked strawberry mixture measures 2 cups; any more and the filling will be loose. If your fresh berries aren’t fully ripe, you may want to add extra sugar to taste in step 2. Use your favorite pie dough or use our recipe. Chill the heavy cream in step 4 to help it whip more quickly.
 
 -----
-## Filling
+#### Filling
 
 *Ingredients:*
 * in a large saucepan:
@@ -34,7 +34,7 @@
 * spread into pie shell and refrigerate until set (4h)
 
 -----
-## Topping
+#### Topping
 
 *Ingredients:*
 * in a bowl:
@@ -51,7 +51,7 @@
 
 
 -----
-## Crust (or use any 9-in. pie crust)
+#### Crust (or use any 9-in. pie crust)
 
 *Ingredients:*
 * whisked together:
