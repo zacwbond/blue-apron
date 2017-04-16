@@ -15,7 +15,8 @@ If the tops of the cabbage rolls appear dry after the foil is removed in step 4,
   * 1 medium head green cabbage, cored
 * in a dutch oven:
   * 1 tablespoon vegetable oil
-* 1 onion, chopped fine
+* separately:
+  * 1 onion, chopped fine
 * together:
   * 3 garlic cloves, minced
   * 1 teaspoon ground ginger
