@@ -12,7 +12,7 @@ If the tops of the cabbage rolls appear dry after the foil is removed in step 4,
 
 *Ingredients:*
 * in a large microwave-safe bowl:
-  * 1 medium head green cabbage: cored
+  * 1 medium head green cabbage: halved and cored
 * in a dutch oven:
   * 1 tbsp vegetable oil
 * separately:
@@ -53,10 +53,13 @@ If the tops of the cabbage rolls appear dry after the foil is removed in step 4,
   * add reserved cooked onion mixture and meat mixture to food processor
   * pulse until well combined (ten 1-s pulses)
 * make rolls:
-  * trim ribs from cabbage leaves
-  * roll 2 tbsp of meat mixture into each leaf (overlapping leaves as necessary)
+  * cut ribs from cabbage leaves so they can be rolled more tightly
+  * overlap the cut edges to prevent filling from leaking
+  * place 2 tbsp of meat mixture 1/2 in. from bottom of each leaf
+  * fold bottom of leaf over the filling, then fold in the sides
+  * continue rolling the leaf up tightly
+  * place each roll seam-side down in a 13x9 baking dish
 * cook:
-  * arrange rolls, seam-down, in 13x9 baking dish
   * port sauce over cabbage rolls
   * cover with foil and bake at 375 deg F until sauce is bubbling and rolls are heated through (45m)
   * remove foil and bake until sauce is slighty thickend and cabbage is tender (15m)
