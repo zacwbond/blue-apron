@@ -29,7 +29,7 @@
 * continue reducing until the filling measures EXACTLY 2 cups
 * stir galetin, sugar and salt into cooked berries
 * simmer berries for 2m
-* transfer to a bowl and cool to room temperature (2m)
+* transfer to a bowl and cool to room temperature (30m)
 * fold fresh berries into cooled filling
 * spread into pie shell and refrigerate until set (4h)
 
