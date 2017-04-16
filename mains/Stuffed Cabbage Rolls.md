@@ -12,28 +12,28 @@ If the tops of the cabbage rolls appear dry after the foil is removed in step 4,
 
 *Ingredients:*
 * in a large microwave-safe bowl:
-  * 1 medium head green cabbage, cored
+  * 1 medium head green cabbage: cored
 * in a dutch oven:
-  * 1 tablespoon vegetable oil
+  * 1 tbsp vegetable oil
 * separately:
-  * 1 onion, chopped fine
+  * 1 onion: chopped fine
 * together:
-  * 3 garlic cloves, minced
+  * 3 garlic cloves: minced
   * 1 teaspoon ground ginger
   * 1/2 teaspoon ground cinnamon
   * 1/4 teaspoon ground nutmeg
 * together:
-  * 1 (28-ounce) can tomato sauce
+  * 1 (28-oz) can tomato sauce
   * 1/4 cup packed light brown sugar
   * 3 tablespoons red wine vinegar
   * 1/2 tsp salt
   * 1/4 tsp pepper
 * in food processor:
-  * 2 slices hearty white sandwich bread, torn into pieces
+  * 2 slices hearty white sandwich bread: torn into pieces
   * 1/2 cup milk
 * together:    
   * 3/4 pound 85 percent lean ground beef
-  * 3/4 pound bratwurst, uncooked, casings removed
+  * 3/4 pound uncooked bratwurst: casings removed
   * 1/2 tsp salt
   * 1/4 tsp pepper
 
