@@ -9,16 +9,16 @@
 
 -----
 *Ingredients:*
-* reserved in refrigerator:
+* *reserved in refrigerator:*
   * 2 lbs. 20-30 shrimp: peeled and deveined (reserve shells)
-* in large saucepan:
+* *in large saucepan:*
   * 4 1/2 C water
   * reserved shrimp shells
-* in a measuring cup:
+* *in a measuring cup:*
   * 3 1/2 C ice water
-* in a dutch oven:
+* *in a dutch oven:*
   * 1/2 C vegetable oil
-* in a small bowl:
+* *in a small bowl:*
   * 2 medium onions: chopped fine
   * 1 medium red bell pepper: chopped fine
   * 1 medium rib celery: chopped fine
@@ -26,13 +26,13 @@
   * 1 tsp dried thyme
   * 1 tsp table salt
   * 1/4 tsp cayenne pepper
-* on a plate:
+* *on a plate:*
   * 3/4 lb andouille sausage: sliced 1/4 in. thick
-* in a small bowl:
+* *in a small bowl:*
   * 1/2 C minced fresh parsley leaves
   * 4 medium scallions: white and green parts, sliced thin
   * 1 1/2 teaspoon file powder
-* separately*
+* *separately*
   * 1/2 C AP flour
   * 2 bay leaves
     
